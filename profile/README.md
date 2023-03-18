@@ -10,6 +10,4 @@ we create tools
 # 💪 Team:  
 **founder:** hexlocation#0887 / 696339037971021865  
 **dev:** SabaDev#5224 / 1050500436290965515  
-**admin / very cool person:** Melted ice#9830 / 1058132684150407310  
-   
 
