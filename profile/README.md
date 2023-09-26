@@ -1,13 +1,9 @@
 # 🔨 Trollering LLC
-we create tools  
-  
-[Our Discord](https://discord.gg/sWErAGjRWD "discord server")
- 
+we create shit   
 # 👪 Friends:  
-[Emptor Selfbot](https://emptor.vip "Emptor Website")  
-[Xanthe Protections](https://discord.gg/Pv5Ge8vMCW "Xanthe Discord")  
+No-one :(
 
 # 💪 Team:  
 **founder:** hexlocation#0887 / 696339037971021865  
-**dev:** SabaDev#5224 / 1050500436290965515  
+**dev:** REDACTED  
 
